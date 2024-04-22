@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @NikStef18
+- 👋 Hi, I’m Niki Stefanopoulou :)
 - 👀 I’m interested in learning language facts, modern/ancient languages or programming languages :)
 - 🌱 I’m currently learning Java (wish me good luck :P)
 - 😄 Pronouns: she/her
